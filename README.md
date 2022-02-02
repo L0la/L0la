@@ -1,4 +1,4 @@
-👋 Hi, I’m Rebecca Shrestha (@l0la)
+👋 Hi, I’m Rebecca Shrestha (@rebz)
 
 👀 I’m interested in learning to code.
 
